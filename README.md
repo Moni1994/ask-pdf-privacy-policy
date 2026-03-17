@@ -85,4 +85,4 @@ Changes will be reflected on this page with an updated date.
 
 If you have questions about this Privacy Policy, contact us at:
 
-📧 wickm021@gmail.com
+📧 support@pdfwise.chat
